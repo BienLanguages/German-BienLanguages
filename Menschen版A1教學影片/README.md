@@ -28,3 +28,8 @@
 | L3 | 6.	德語國家與國籍 | https://www.youtube.com/watch?v=MU-7hUkkA-I |
 | L3 | 7.	語言對話 (8) | https://www.youtube.com/watch?v=UYh0md3DiTI |
 | L3 | 8.	語言對話 (11) |  https://www.youtube.com/watch?v=8U0ycOcu3iI |
+| L4 | 1.	課本內容(定冠詞、數字詢價) | https://www.youtube.com/watch?v=CFEFnjz0k3A&feature=youtu.be |
+| L4 | 2.	數字0-1000000 | https://www.youtube.com/watch?v=bhgJT-hOuck&feature=youtu.be |
+| L4 | 3.	Nominativ 用法 | https://www.youtube.com/watch?v=sv98y3aURo8&feature=youtu.be |
+| L4 | 4.	Akk用法 | https://www.youtube.com/watch?v=srvFcrRNLdw&feature=youtu.be |
+| L4 | 5.	食物 | https://www.youtube.com/watch?v=MYksvfa1wWI&feature=youtu.be |
