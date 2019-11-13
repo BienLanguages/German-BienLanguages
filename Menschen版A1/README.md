@@ -3,6 +3,6 @@
 
 # Videos:
 
-| 課程範圍 | 內容 | 連結 |
+| 相關範圍 | 內容 | 連結 |
 |:--------|:-----|:-----|
 | L1 | 1.	問候語 (1) | https://www.youtube.com/watch?v=eBsNmjpChxc |
