@@ -17,3 +17,14 @@
 | L2 | 4.	德語數字0-19 | https://www.youtube.com/watch?v=KvmxeqGlv0M |
 | L2 | 5.	德語0-9 加減法 (4) | https://www.youtube.com/watch?v=ruhYiaX-mak |
 | L2 | 6.	德語10-19 加減法 (6) | https://www.youtube.com/watch?v=bSKw0LjvcnA&t=29s |
+| L3 | 1.	家人 | https://www.youtube.com/watch?v=ZKH9SLlNDSM |
+| L3 | 家人詳細版 | https://www.youtube.com/watch?v=X_HgpbOOdC8 |
+| L3 | 2.	人稱所有格形容詞 | https://www.youtube.com/watch?v=dxIIW-LP3BE&feature=youtu.be |
+| L3 | 家人對話運用 (9) | https://www.youtube.com/watch?v=x4IbpS8Povw |
+| L3 | 3.	德語數字20-100  | https://www.youtube.com/watch?v=2KbtJBwhxSc&t=3s |
+| L3 | 數字20-100 聽力版 | https://www.youtube.com/watch?v=lFUWqFP3Odw |
+| L3 | 4.	國家sprechen、leben等 | https://www.youtube.com/watch?v=LsWzA-SdS9s&feature=youtu.be |
+| L3 | 5.	德語國家與語言 | https://www.youtube.com/watch?v=E0PJrTbnbDk |
+| L3 | 6.	德語國家與國籍 | https://www.youtube.com/watch?v=MU-7hUkkA-I |
+| L3 | 7.	語言對話 (8) | https://www.youtube.com/watch?v=UYh0md3DiTI |
+| L3 | 8.	語言對話 (11) |  https://www.youtube.com/watch?v=8U0ycOcu3iI |
