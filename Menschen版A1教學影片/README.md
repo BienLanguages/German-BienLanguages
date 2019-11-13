@@ -33,3 +33,7 @@
 | L4 | 3.	Nominativ 用法 | https://www.youtube.com/watch?v=sv98y3aURo8&feature=youtu.be |
 | L4 | 4.	Akkusativ用法 | https://www.youtube.com/watch?v=srvFcrRNLdw&feature=youtu.be |
 | L4 | 5.	食物 | https://www.youtube.com/watch?v=MYksvfa1wWI&feature=youtu.be |
+| L5 | 1.	課本內容 | https://www.youtube.com/watch?v=CCPbuHcl_eQ&feature=youtu.be |
+| L5 | 2.	顏色 | https://www.youtube.com/watch?v=7X_Ytm7MbEQ |
+| L5 | 3.	否定式 | https://www.youtube.com/watch?v=Nyfh40VwwuQ&feature=youtu.be |
+| L5 | 4.	顏色對話 | https://www.youtube.com/watch?v=hHCpxxN4nZk&feature=youtu.be |
