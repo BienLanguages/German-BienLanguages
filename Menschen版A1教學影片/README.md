@@ -31,5 +31,5 @@
 | L4 | 1.	課本內容(定冠詞、數字詢價) | https://www.youtube.com/watch?v=CFEFnjz0k3A&feature=youtu.be |
 | L4 | 2.	數字0-1000000 | https://www.youtube.com/watch?v=bhgJT-hOuck&feature=youtu.be |
 | L4 | 3.	Nominativ 用法 | https://www.youtube.com/watch?v=sv98y3aURo8&feature=youtu.be |
-| L4 | 4.	Akk用法 | https://www.youtube.com/watch?v=srvFcrRNLdw&feature=youtu.be |
+| L4 | 4.	Akkusativ用法 | https://www.youtube.com/watch?v=srvFcrRNLdw&feature=youtu.be |
 | L4 | 5.	食物 | https://www.youtube.com/watch?v=MYksvfa1wWI&feature=youtu.be |
