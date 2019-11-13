@@ -58,3 +58,12 @@
 | L8 | 5.	課文對話 | https://www.youtube.com/watch?v=lomsWLOiL_8&feature=youtu.be |
 | L8 | 6.	投影片 19: 現在幾點了 |  https://www.youtube.com/watch?v=PbyqZerVGis&feature=youtu.be |
 | L8 | 7.	投影片Dativ | https://www.youtube.com/watch?v=7xQVOuf0rRE&feature=youtu.be |
+| L9 | 1.	課本單字+文法 | https://www.youtube.com/watch?v=9nPgXhkmh-o&feature=youtu.be |
+| L9 | 2.	mögen與möchten的比較 | https://www.youtube.com/watch?v=V46uq-vJhHA&feature=youtu.be |
+| L9 | 3.	時間介係詞 | https://www.youtube.com/watch?v=vQvu7FiRBn0&feature=youtu.be |
+| L9 | 4.	星期投影片(17) | https://www.youtube.com/watch?v=IKPkBHrH82k&feature=youtu.be |
+| L9 | 5.	投影片 (10): 水果、蔬菜 | https://www.youtube.com/watch?v=KkErDiUzxFs&feature=youtu.be |
+| L9 | 投影片 (12): 飲料 | https://youtu.be/-Z2jZNzDuMQ |
+| L9 | 6.	德文課程: das Essen 一日三餐 | https://www.youtube.com/watch?v=hLR9il9mUHU&feature=youtu.be |
+| L10 | 1.	單字+文法 | https://www.youtube.com/watch?v=QUzZDybfN_s&feature=youtu.be |
+| L10 | 2.	文法(分離式動詞詳細解說) |  https://www.youtube.com/watch?v=YSu_Sr9hfto&feature=youtu.be |
