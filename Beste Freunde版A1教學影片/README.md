@@ -3,7 +3,7 @@
 
 # Videos:
 
-|  範圍 | 內容 | 連結 |
+| 範圍 | 內容 | 連結 |
 |:--------|:-----|:-----|
 | 前置 | 1)	德語字母發音Aa-Oo | https://www.youtube.com/watch?v=GLwSBP18_RA |
 | 前置 | 2)	德語字母發音 Pp-Zz | https://www.youtube.com/watch?v=cICs7cI5GUs&t=41s |
