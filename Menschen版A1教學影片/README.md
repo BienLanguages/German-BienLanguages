@@ -44,3 +44,8 @@
 | L6 | 4.	文法 : mögen |  https://www.youtube.com/watch?v=XvrGvMNcRvw&feature=youtu.be |
 | L6 | 5.	Nominativ 跟 Akkusativ 文法篇(a) |  https://www.youtube.com/watch?v=sv98y3aURo8&feature=youtu.be |
 | L6 | 	Nominativ 跟 Akkusativ 文法篇(b) | https://www.youtube.com/watch?v=srvFcrRNLdw&feature=youtu.be |
+| L7 | 1.	L7單字 |  https://www.youtube.com/watch?v=6KdF123pVnU&feature=youtu.be |
+| L7 | 2.	情狀動詞 können | https://www.youtube.com/watch?v=u3_xrSdWtyU&feature=youtu.be |
+| L7 | 3.	句型結構-1 |  https://www.youtube.com/watch?v=Pg7LtgAwlEY&feature=youtu.be |
+| L7 | 4.	投影片16(1)嗜好對話I | https://www.youtube.com/watch?v=IbIz8S5p6r0&feature=youtu.be |
+| L7 | 投影片16(2)嗜好對話II | https://www.youtube.com/watch?v=Pgz6dB6Gllg&feature=youtu.be |
