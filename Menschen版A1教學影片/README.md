@@ -37,3 +37,10 @@
 | L5 | 2.	顏色 | https://www.youtube.com/watch?v=7X_Ytm7MbEQ |
 | L5 | 3.	否定式 | https://www.youtube.com/watch?v=Nyfh40VwwuQ&feature=youtu.be |
 | L5 | 4.	顏色對話 | https://www.youtube.com/watch?v=hHCpxxN4nZk&feature=youtu.be |
+| L6 | 1.	PPT: L6單字(P.1~5一部) | https://www.youtube.com/watch?v=HqnNB5TY3v0&feature=youtu.be |
+| L6 | 練習題(P.6~8一部) | https://www.youtube.com/watch?v=a1qZAmMu1ak&feature=youtu.be |
+| L6 | 2.	名詞單數轉複數簡易規則 |  https://www.youtube.com/watch?v=ELodIvWd_Y8&feature=youtu.be |
+| L6 | 3.	名詞單數轉複數詳細版 | https://www.youtube.com/watch?v=vKXYUg83bFM&feature=youtu.be |
+| L6 | 4.	文法 : mögen |  https://www.youtube.com/watch?v=XvrGvMNcRvw&feature=youtu.be |
+| L6 | 5.	Nominativ 跟 Akkusativ 文法篇(a) |  https://www.youtube.com/watch?v=sv98y3aURo8&feature=youtu.be |
+| L6 | 	Nominativ 跟 Akkusativ 文法篇(b) | https://www.youtube.com/watch?v=srvFcrRNLdw&feature=youtu.be |
