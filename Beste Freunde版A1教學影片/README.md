@@ -3,7 +3,7 @@
 
 # Videos:
 
-| 相關範圍 | 內容 | 連結 |
+| 範圍 | 內容 | 連結 |
 |:--------|:-----|:-----|
 | 前置 | 1)	德語字母發音Aa-Oo | https://www.youtube.com/watch?v=GLwSBP18_RA |
 | 前置 | 2)	德語字母發音 Pp-Zz | https://www.youtube.com/watch?v=cICs7cI5GUs&t=41s |
@@ -14,3 +14,8 @@
 | L1 | 4.	顏色對話(Menschen) | https://www.youtube.com/watch?v=hHCpxxN4nZk&feature=youtu.be |
 | L1 | 5.	星期投影片(17, Menschen) | https://www.youtube.com/watch?v=IKPkBHrH82k&feature=youtu.be |
 | L1 | 6.	季節、月份、星期單字(Menschen L12) | https://www.youtube.com/watch?v=91j91fRQqnE&feature=youtu.be |
+| L2 | 1.	課文單字+講解 | https://www.youtube.com/watch?v=tnvPigKHYLE&feature=youtu.be |
+| L2 | 2.	課文對話 | https://www.youtube.com/watch?v=ntfJg1YraUU&feature=youtu.be |
+| L3 | 1.	課文單字+講解 | https://www.youtube.com/watch?v=Diqx6uOX-lY&feature=youtu.be |
+| L3 | 2.	課文對話 | https://www.youtube.com/watch?v=l2vaiQTTXvw&feature=youtu.be |
+| L3 | 3.	können 進階解說(Menschen) | https://www.youtube.com/watch?v=u3_xrSdWtyU&feature=youtu.be |
