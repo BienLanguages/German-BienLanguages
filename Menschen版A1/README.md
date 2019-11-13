@@ -9,3 +9,11 @@
 |  我的第一堂德文課 | 2. 德語字母發音 Pp-Zz | https://www.youtube.com/watch?v=cICs7cI5GUs&t=41s |
 |  我的第一堂德文課 | 3. 德籍老師字母Aa-Zz  | https://www.youtube.com/watch?v=9KSKyALC44o |
 | L1 | 1.	問候語 (1) | https://www.youtube.com/watch?v=eBsNmjpChxc |
+| L1 | 2.	人稱與動詞sein | https://www.youtube.com/watch?v=7lbyuWj3EUI |
+| L1 | 3.	我來自於… (3) | https://www.youtube.com/watch?v=u_ql9DUiLuw |
+| L2 | 1.	職業與相關動詞 | https://www.youtube.com/watch?v=yavlkqxAqBs |
+| L2 | 2.	介紹與詢問名字 (2) | https://www.youtube.com/watch?v=gJGmKO_fp4s |
+| L2 | 3.	身分、職業確認 (7) | https://www.youtube.com/watch?v=dyXec9GSTQk |
+| L2 | 4.	德語數字0-19 | https://www.youtube.com/watch?v=KvmxeqGlv0M |
+| L2 | 5.	德語0-9 加減法 (4) | https://www.youtube.com/watch?v=ruhYiaX-mak |
+| L2 | 6.	德語10-19 加減法 (6) | https://www.youtube.com/watch?v=bSKw0LjvcnA&t=29s |
