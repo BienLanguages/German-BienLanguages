@@ -10,12 +10,12 @@
 | 前置 | 3)	德文基礎對話-青少年版 | https://www.youtube.com/watch?v=A3OfubSkEyo&feature=youtu.be |
 | L1 | 1.	課文單字+講解 | https://www.youtube.com/watch?v=K6LNNCaqwO8&feature=youtu.be |
 | L1 | 2.	課文對話 | https://www.youtube.com/watch?v=omnn8xFq2f8&feature=youtu.be |
-| L1 | 3.	顏色(Menschen) | https://www.youtube.com/watch?v=7X_Ytm7MbEQ |
-| L1 | 4.	顏色對話(Menschen) | https://www.youtube.com/watch?v=hHCpxxN4nZk&feature=youtu.be |
-| L1 | 5.	星期投影片(17, Menschen) | https://www.youtube.com/watch?v=IKPkBHrH82k&feature=youtu.be |
-| L1 | 6.	季節、月份、星期單字(Menschen L12) | https://www.youtube.com/watch?v=91j91fRQqnE&feature=youtu.be |
+| L1 | 3.	顏色| https://www.youtube.com/watch?v=7X_Ytm7MbEQ |
+| L1 | 4.	顏色對話| https://www.youtube.com/watch?v=hHCpxxN4nZk&feature=youtu.be |
+| L1 | 5.	星期投影片| https://www.youtube.com/watch?v=IKPkBHrH82k&feature=youtu.be |
+| L1 | 6.	季節、月份、星期單字 | https://www.youtube.com/watch?v=91j91fRQqnE&feature=youtu.be |
 | L2 | 1.	課文單字+講解 | https://www.youtube.com/watch?v=tnvPigKHYLE&feature=youtu.be |
 | L2 | 2.	課文對話 | https://www.youtube.com/watch?v=ntfJg1YraUU&feature=youtu.be |
 | L3 | 1.	課文單字+講解 | https://www.youtube.com/watch?v=Diqx6uOX-lY&feature=youtu.be |
 | L3 | 2.	課文對話 | https://www.youtube.com/watch?v=l2vaiQTTXvw&feature=youtu.be |
-| L3 | 3.	können 進階解說(Menschen) | https://www.youtube.com/watch?v=u3_xrSdWtyU&feature=youtu.be |
+| L3 | 3.	können 進階解說 | https://www.youtube.com/watch?v=u3_xrSdWtyU&feature=youtu.be |
