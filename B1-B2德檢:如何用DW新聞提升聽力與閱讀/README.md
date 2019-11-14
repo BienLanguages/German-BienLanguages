@@ -3,8 +3,7 @@
 
 # Videos:
 `資料來源: Deutsche Welle`
-###### 比恩語文 (Bien Languages ) 提供翻譯與註解版權所有請勿盜用<h6> tag
-
+###### 比恩語文 (Bien Languages ) 提供翻譯與註解版權所有請勿盜用<h6>
 | 新聞主題 | PDF檔案下載 |
 |:--------|:-------|
-| 1. Stirbt der Spielzeugladen? 逐漸失去生機的玩具店? |  |
+| 1. Stirbt der Spielzeugladen? 逐漸失去生機的玩具店? | https://reurl.cc/1QOaNW |
