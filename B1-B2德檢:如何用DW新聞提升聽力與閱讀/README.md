@@ -7,4 +7,4 @@
   
 | 新聞主題 | PDF檔案下載 |
 |:--------|:-------|
-| 1. Stirbt der Spielzeugladen? 逐漸失去生機的玩具店? | https://reurl.cc/1QOaNW |
+| 1. Stirbt der Spielzeugladen? 逐漸失去生機的玩具店? | https://reurl.cc/QpaAp5 |
