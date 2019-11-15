@@ -7,3 +7,4 @@
 | 新聞主題(含註解) | PDF檔(含音檔連結)下載 |
 |:--------|:-------|
 | 1. Stirbt der Spielzeugladen? 逐漸失去生機的玩具店? |  https://reurl.cc/nVYdOv |
+| 2. Trotz Kohleausstieg sterben Dörfer 礦場結業與拆遷 | https://reurl.cc/Yl3Lnl |
