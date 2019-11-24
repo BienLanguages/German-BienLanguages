@@ -8,3 +8,5 @@
 |:--------|:-------|
 | 1. Stirbt der Spielzeugladen? 逐漸失去生機的玩具店? |  https://reurl.cc/ZnlalW |
 | 2. Trotz Kohleausstieg sterben Dörfer 礦場結業與拆遷 | https://reurl.cc/rlKdk4 |
+| 3. Deutscher Müll landet im Ausland 德國垃圾向外出口 | https://reurl.cc/Zn84a3 |
+| 4. IS-Anhänger zurück in Deutschland 伊斯蘭國擁護者返鄉德國 | https://reurl.cc/ObQYbv |
