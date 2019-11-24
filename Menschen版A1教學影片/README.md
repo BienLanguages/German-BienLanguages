@@ -51,7 +51,7 @@
 | L7 | 投影片16(2)嗜好對話II | https://www.youtube.com/watch?v=Pgz6dB6Gllg&feature=youtu.be |
 | L8 | 1.	課本的單字 | https://www.youtube.com/watch?v=7GKYwpQy3WU&feature=youtu.be |
 | L8 | 2.	時間介係詞 | https://www.youtube.com/watch?v=vQvu7FiRBn0&feature=youtu.be |
-| L8 | 地方介係詞: 長版 | https://www.youtube.com/watch?v=EbLko_IATBY&feature=youtu.be |
+| L8 | 地方介係詞 | https://www.youtube.com/watch?v=EbLko_IATBY&feature=youtu.be |
 | L8 | 3.	時間的相關單字補充 | https://www.youtube.com/watch?v=rON44wzMuMg&feature=youtu.be |
 | L8 | 4.	德文句型2-一般語氣 | https://www.youtube.com/watch?v=XFw38Lg-gx4&feature=youtu.be |
 | L8 | 5.	課文對話 | https://www.youtube.com/watch?v=lomsWLOiL_8&feature=youtu.be |
