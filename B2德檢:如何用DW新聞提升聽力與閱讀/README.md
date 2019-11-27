@@ -10,4 +10,4 @@
 | 2. Trotz Kohleausstieg sterben Dörfer 礦場結業與拆遷 | https://reurl.cc/rlKdk4 |
 | 3. Deutscher Müll landet im Ausland 德國垃圾向外出口 | https://reurl.cc/Zn84a3 |
 | 4. IS-Anhänger zurück in Deutschland 伊斯蘭國擁護者返鄉德國 | https://reurl.cc/ObQYbv |
-| 5. Baby-Name sorgt für Ärger 引發爭議的嬰兒命名 | https://reurl.cc/D1eKk5 |
+| 5. Baby-Name sorgt für Ärger 引發爭議的嬰兒命名 | https://reurl.cc/4gq693 |
