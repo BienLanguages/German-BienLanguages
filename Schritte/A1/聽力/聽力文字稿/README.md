@@ -6,4 +6,5 @@
  
 | Schritte 聽力檔 | 官方聽力文字稿連結 |
 |:--------|:-------|
-| 1. A1 L1~L7 課本聽力文字稿 | https://reurl.cc/QdNqQM |
+| 1. A1.1 L1~L7 課本聽力文字稿 | https://reurl.cc/QdNqQM |
+| 1. A1.2 L8~L14 課本聽力文字稿 | https://reurl.cc/AqXr53 |
