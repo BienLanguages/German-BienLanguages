@@ -35,11 +35,11 @@
 | 27. Kommt jetzt das Tempolimit? 高速公路速限時代來臨 | https://reurl.cc/5qll3R |
 | 28. Mietenwahnsinn: Bürger fordern Enteignung 暴漲的房租: 市民要求徵收私人租房公司房產 | https://reurl.cc/r8xxkb |
 | 29. Modedesigner Karl Lagerfeld ist tot 時尚設計師卡爾·拉格斐逝世 | https://reurl.cc/8nGGzb |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
+| 30. Nicht nur für Kinder: die Barbie 大人小孩都喜歡的玩具:芭比 | https://reurl.cc/0OoOYK |
+| 31. Nikotin – ein Mittel gegen Parkinson? 尼古丁-對抗帕金森症的救星? | https://reurl.cc/N6j6zk |
+| 32. Österreichischer Vizekanzler tritt wegen Skandalvideos zurück 奧地利副總理因醜聞影片下台 | https://reurl.cc/k0dVNn |
+| 33. Parteispenden: Umstrittene Unterstützung 政黨捐款: 爭議的資助 | https://reurl.cc/5qlogz |
+| 34. So wählten die EU-Bürger 2019 2019歐洲議會選舉 | https://reurl.cc/WLdEdL |
 |  |  |
 |  |  |
 |  |  |
