@@ -40,7 +40,6 @@
 | 32. Österreichischer Vizekanzler tritt wegen Skandalvideos zurück 奧地利副總理因醜聞影片下台 | https://reurl.cc/k0dVNn |
 | 33. Parteispenden: Umstrittene Unterstützung 政黨捐款: 爭議的資助 | https://reurl.cc/5qlogz |
 | 34. So wählten die EU-Bürger 2019 2019歐洲議會選舉 | https://reurl.cc/WLdEdL |
-|  |  |
-|  |  |
-|  |  |
-|  |  |
+| 35. US-Truppen in Deutschland: Wer trägt die Kosten? 駐德的美國部隊:誰承擔這個費用? | https://reurl.cc/ldV0ov |
+| 36. Wenn die Holocaust-Zeitzeugen sterben 大屠殺見證人逝世 | https://reurl.cc/MdvZ0n |
+| 37. Venezuela: Arbeiten für ein warmes Essen 委內瑞拉: 為了一餐溫飽的工作 | https://reurl.cc/pydmM4 |
