@@ -12,8 +12,7 @@
 | 4. IS-Anhänger zurück in Deutschland 伊斯蘭國擁護者返鄉德國 | https://reurl.cc/ObQYbv |
 | 5. Baby-Name sorgt für Ärger 引發爭議的嬰兒命名 | https://reurl.cc/4gq693 |
 | 6. Basketball-Legende Dirk Nowitzki hört auf 籃球傳奇人物－德克‧諾威茨基退休 | https://reurl.cc/8nGldo |
-| 7. Bundesverfassungsgericht: Gleiches Wahlrecht für Menschen mit Behinderung 
-聯邦憲法法院:身心障礙人士享有平等選舉權 | https://reurl.cc/Z7OnpV |
+| 7. Bundesverfassungsgericht: Gleiches Wahlrecht für Menschen mit Behinderung 聯邦憲法法院:身心障礙人士享有平等選舉權 | https://reurl.cc/Z7OnpV |
 | 8. Die deutschen Stimmen von Hollywood-Stars 好萊塢明星的德國配音 | https://reurl.cc/D691GQ |
 | 9. Die Fußfessel – Überwachung von Straftätern 腳鍊 — 對罪犯的監控 | https://reurl.cc/Oq1b99 |
 | 10. Die Krankheit namens Krankheitsangst Krebs? 疑病症:對於恐懼的疾病 | https://reurl.cc/Ez7Kkn |
