@@ -26,9 +26,9 @@
 | 18. Gesünder mit Grundeinkommen 無條件基本收入使人活得更健康 | https://reurl.cc/8nGGW7 |
 | 19. Hilfe gegen Armut und Einsamkeit im Alter 幫助老人對抗貧窮和孤單 | https://reurl.cc/0Ooo2A |
 | 20. Hitlers Wolfsschanze – ein historischer Ort 希特勒的狼穴 — 一個充滿歷史意義的地方 | https://reurl.cc/x0ZZ9V |
-|  |  |
-|  |  |
-|  |  |
+| 21. Hochhäuser: die Zukunft des Wohnens 未來住宅:摩天大樓 | https://reurl.cc/0Ooo1K |
+| 22. Im Einsatz für ein friedliches Fußballspiel 致力於維護足球賽的和平 | https://reurl.cc/d500mg |
+| 23. Kampfansage an Netflix und Amazon 對Netflix(網飛)和Amazon(亞馬遜)的挑戰 | https://reurl.cc/9XEE7V |
 |  |  |
 |  |  |
 |  |  |
