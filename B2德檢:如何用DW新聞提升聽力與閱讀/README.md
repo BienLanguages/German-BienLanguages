@@ -18,22 +18,21 @@
 | 10. Die Krankheit namens Krankheitsangst Krebs? 疑病症:對於恐懼的疾病 | https://reurl.cc/Ez7Kkn |
 | 11. Die psychische Belastung einer Organspende 器官捐贈的心理負擔 | https://reurl.cc/VX6aKN |
 | 12. Die Roten Funken im Kölner Karneval 科隆狂歡節的「紅色火花」 | https://reurl.cc/Y61lLo |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
+| 13. Dringend Pflegekräfte gesucht 迫切需求護理人員 | https://reurl.cc/q8ddmg |
+| 14. Ein Lehrer reist um die Welt 環遊世界的老師 | https://reurl.cc/ygZZnD |
+| 15. Ein Ort für verfolgte Schriftsteller 受迫害作家的避難所 | https://reurl.cc/n0zzo1 |
+| 16. Eine Stadt wird Touristen-Hotspot 成為熱門旅遊景點的城市 | https://reurl.cc/Ez77nk |
+| 17. Fankultur gegen Investorenmacht 反對投資者權力的粉絲文化 | https://reurl.cc/Mdvvk4 |
+| 18. Gesünder mit Grundeinkommen 無條件基本收入使人活得更健康 | https://reurl.cc/8nGGW7 |
+| 19. Hilfe gegen Armut und Einsamkeit im Alter 幫助老人對抗貧窮和孤單 | https://reurl.cc/0Ooo2A |
+| 20. Hitlers Wolfsschanze – ein historischer Ort 希特勒的狼穴 — 一個充滿歷史意義的地方 | https://reurl.cc/x0ZZ9V |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
+|  |  |
