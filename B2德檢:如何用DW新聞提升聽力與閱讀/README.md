@@ -29,7 +29,7 @@
 | 21. Hochhäuser: die Zukunft des Wohnens 未來住宅:摩天大樓 | https://reurl.cc/0Ooo1K |
 | 22. Im Einsatz für ein friedliches Fußballspiel 致力於維護足球賽的和平 | https://reurl.cc/d500mg |
 | 23. Kampfansage an Netflix und Amazon 對Netflix(網飛)和Amazon(亞馬遜)的挑戰 | https://reurl.cc/9XEE7V |
-| 24. Kaum Ostdeutsche in Spitzenpositionen 幾乎沒有東德人位居高階職務 | https://reurl.cc/A8q1vE |
+| 24. Kaum Ostdeutsche in Spitzenpositionen 幾乎沒有東德人位居高階職務 | https://reurl.cc/VX6zq6 |
 | 25. Keine Schule ohne Masern-Impfung 德國校方要求全體師生接種麻疹疫苗 | https://reurl.cc/r8xxY1 |
 | 26. Klimaschutz in der Disko 夜店裡做環保 | https://reurl.cc/8nGGbo |
 | 27. Kommt jetzt das Tempolimit? 高速公路速限時代來臨 | https://reurl.cc/5qll3R |
